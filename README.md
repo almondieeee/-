@@ -23,8 +23,10 @@ $${\color{pink}Spurnki,\space Orin\space Ayo}$$
 <br>
 $${\color{pink}BFDI,\space Animatic\space Battle,\space Inanimate\space Insanity}$$
 $${\color{pink}Sanrio}$$
-
-------------------------------------------------------------------------------------
+<br>
+<br>
+<br>
+<br>
 
 $${\color{lightpink}C+H/Interact\space Freely!}$$
 
